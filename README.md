@@ -8,3 +8,6 @@ Theologen Wissen, Prophetie und dadurch das Tor zu Unterwelt gemeint Zeit für I
 
 Eltern nerven gerade Ich müsste dieses Jahr zum Zahnarzt wegen Punkten, Ich sage: Kein bock auf zahnarzt mir sind sogar zähne unten hinten nachgewachsen es ist so kindergarten mit den kosten, ich müsste mir ewig nur ziehen lassen wenndann weil pflanzenkunde, japaner wissen sogar usag-1
 Ich weiß ganz genau dass mir der Zahnarzt nur mit Messer drohen will damit Ich Rezept Pflanzenkunde nachgucke weil die selber sowas verschachern wollen gemeint herstellen. Der tarnut nur weil oben hinten noch 2 gezogen worden gemeint jeweils ein oben gezogen sind dannach weil angenehmer für den kiefer. Ist aber auch ne weile her, jahr hier oben ist 2025. Zahnarzt sprüht wenn man pech hat nur molekularstrukturen drauf für karies weil der will dass ich fluride nutze oder spritzt irgendwas verstecktes, spritzen beim arzt sind auch durchsichtig. Der hat mir letztes mal überall ins zahnfleisch gestochen, nicht dass es geblutet hat, aber nicht lustig von dem, genauso wie diese zahnstein wegmach sache, bis 1mm oder was? Kenns vom Praktikum damals Realschule, der metall gorilla.
+
+
+Ey Leute bin 2019 an Corona gestorben und Wiederauferstanden, Muslime würden nur ersteres aufschreiben.
